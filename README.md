@@ -1,0 +1,1 @@
+# o-zaro_tub_sonlar
